@@ -1,2 +1,0 @@
-# frist-teach
-# frist-teach
